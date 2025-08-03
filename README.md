@@ -3,7 +3,7 @@
 
 </p>
 
-![](https://files.catbox.moe/yyoz5s.png)
+![](https://files.catbox.moe/6b0lzh.png)
 
 ---
 <h3 align="center">
