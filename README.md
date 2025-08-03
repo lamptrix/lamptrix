@@ -1,8 +1,6 @@
 
-<p align="center"> I am a VERY awkward first interactor, sorry!
+<p align="center"> ain't nothing gonna break my stride !
 
-</p>
-<p align="center">I will be happy if you interact with me first tho :D
 </p>
 
 ![](https://files.catbox.moe/yyoz5s.png)
